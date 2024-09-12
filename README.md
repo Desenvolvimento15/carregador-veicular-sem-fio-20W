@@ -1,0 +1,1 @@
+# carregador-veicular-sem-fio-20W
